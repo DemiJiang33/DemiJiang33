@@ -31,4 +31,4 @@ I’ve played every single version of Pokémon on Nintendo. If you ever need som
 
 ---
 
-_Thanks for stopping by! ⭐️_
+_⭐️ Thanks for stopping by! ⭐️_
